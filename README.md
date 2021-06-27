@@ -8,5 +8,4 @@
   while still struggling to find my position by learning all kinds of stuff
 
 📫 Welcome to contact me. Following is my personal blog:
-
     https://tvhead98.github.io/about/
