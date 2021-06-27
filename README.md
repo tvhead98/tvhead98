@@ -5,7 +5,7 @@
 - deep learning
 - information system
 
-while still struggling to find my position by studying all kinds of stuff
+  while still struggling to find my position by studying all kinds of stuff
 
 📫 Welcome to contact me. Here is my personal blog:
 
